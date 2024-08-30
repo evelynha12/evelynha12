@@ -1,4 +1,5 @@
 - 👋 oi, meu nome é evely 
 - 👀 sou estudante do alura
 - 🌱 estudo na escola Oscar Kurtz Camargo 
-
+-✨ numero para entrar em contato: (15)996940805
+-🍂 g-mail para contato: ejeordane55@gmail.com
